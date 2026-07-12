@@ -21,4 +21,4 @@ im dying on the hill that pennywise isnt a slasher.
 pennywise my life my love my everything 
 
 im lit pennywises red balloon btw 
-<img width="2250" height="3000" alt="Untitled429_20260705114821" src="https://github.com/user-attachments/assets/d4802b35-7614-4993-9525-7748c744da7e" />
+<img width="2250" height="3000" alt="Untitled429_20260705114821" src="https://github.com/user-attachments/assets/cded7cb8-b4d2-4d5d-b241-8933056cfb68" />
