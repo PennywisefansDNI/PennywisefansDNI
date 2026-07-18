@@ -1,24 +1,26 @@
-Hi im THE pennywiseaholic. you DO NOT love it more than me i promise. ok? im also NOT satire/srs ??
+THE pennywiseaholic. you DO NOT love it more than me i promise. im NOT satire/srs
 
-minor 
+not a yumeshipper. pennywise is my L/o .
 
-i dont mind being covered (if your sitting under me)
+minor -13 dni
+
+i dont mind being covered
 
 you can call me penn or pennywises#1fan. it/its pref they/them is acceptable 
 
-im pennywises number one every word with a positive conotation (fan/lover/enthusiast/devotee/worshipper)
+#1/#0/#0.5 pennywise fan/lover/devotee/enthusiast/worshipper
 
 pennywise special interest for 9 years  (since 2017.)
 
-people who like pennywise(ESPECIALLY if you sexualize it in ANY manner) i beg you to stay FAR away . pls. i easily get triggered. (all of yall fucken weird too ok??(yeathiscountsforme🙄))
+ pennywise fans (ESPECIALLY if you sexualize it in ANY manner) i beg you to stay FAR away . pls. i easily get triggered. (all of yall fucken weird too ok??(yeathiscountsforme🙄))
 
 IT fandom interact with extreme caution
 
 my only interest is pennywise thanks
 
-im dying on the hill that pennywise isnt a slasher.
+slasher fans iwEEEEEEc (pennywise is NOT a slasher)
 
-pennywise my life my love my everything 
+pennywise my life my love my everything .
 
-im lit pennywises red balloon btw 
+im lit pennywises red balloon btw (objectkin)
 <img width="2250" height="3000" alt="Untitled429_20260705114821" src="https://github.com/user-attachments/assets/cded7cb8-b4d2-4d5d-b241-8933056cfb68" />
