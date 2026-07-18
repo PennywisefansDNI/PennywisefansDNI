@@ -1,6 +1,6 @@
 THE pennywiseaholic. you DO NOT love it more than me i promise. im NOT satire/srs
 
-not a yumeshipper. pennywise is my L/o .
+not a yumeshipper. pennywise is my L/o . (limerent object.)
 
 minor -13 dni
 
