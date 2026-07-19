@@ -1,4 +1,5 @@
 <img width="718" height="104" alt="Screenshot_20260719-152822~2" src="https://github.com/user-attachments/assets/ef4b05f3-1469-4752-9adc-811ea2948be9" />
+
 THE pennywiseaholic. you DO NOT love it more than me i promise. im NOT satire/srs
 
 minor -13 dni
