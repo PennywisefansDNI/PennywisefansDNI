@@ -12,6 +12,8 @@ you can call me penn or pennywises#1fan. IT/ITS pref they/them is acceptable
 
 #1/#0/#0.5 pennywise fan/lover/devotee/enthusiast/worshipper
 
+<img width="630" height="331" alt="enjoy-pennywises-face-when-he-smashes-the-mirror-maze-glass-v0-d6rgk2goj7s31" src="https://github.com/user-attachments/assets/5cfa5e3b-e717-4355-a379-14b795a46acd" />
+
 pennywise special interest for 9 years  (since 2017.)
 
  pennywise fans DNI . DNI if u sexualize IT
@@ -23,3 +25,5 @@ my only interest is pennywise thanks
 slasher fans iwEc (pennywise isnt a slasher)
 
 pennywise my life my love my everything .
+
+<img width="1920" height="802" alt="stephen-kings-it-pennywises-most-terrifying-moments_5gy3" src="https://github.com/user-attachments/assets/c825955c-17e3-4254-bc80-4d8413a9ff74" />
