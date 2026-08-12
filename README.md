@@ -1,14 +1,16 @@
-if u don't like me block me please
+if u don't like me block me 
+
+im mean now ok
 
 <img width="718" height="104" alt="Screenshot_20260719-152822~2" src="https://github.com/user-attachments/assets/ef4b05f3-1469-4752-9adc-811ea2948be9" />
 
-dni pennywise fans dni if u sexualize IT
+dni pennywise fans dni if u sexualize IT dnidnidnidni
 
 THE pennywiseaholic. you DO NOT love IT more than me i promise.
 
 minor (-13 DNI)
 
-call me penn or pennywises#1fan. IT/ITS pref they/them is acceptable 
+my name is penn. use it/it's.
 
 #1/#0/#0.5 pennywise fan/lover/devotee/enthusiast/worshipper
 
@@ -16,7 +18,7 @@ call me penn or pennywises#1fan. IT/ITS pref they/them is acceptable
 
 pennywise special interest for 9 years  (since 2017.)
 
-my only interest is pennywise thanks
+my only interest is pennywise
 
 pennywise my life my love my everything .
 
