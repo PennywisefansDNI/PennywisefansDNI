@@ -1,7 +1,5 @@
 if u don't like me block me 
 
-im mean now ok
-
 <img width="718" height="104" alt="Screenshot_20260719-152822~2" src="https://github.com/user-attachments/assets/ef4b05f3-1469-4752-9adc-811ea2948be9" />
 
 dni pennywise fans dni if u sexualize IT dnidnidnidni
