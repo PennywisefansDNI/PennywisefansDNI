@@ -8,8 +8,6 @@ THE pennywiseaholic. you DO NOT love IT more than me i promise.
 
 minor (-13 DNI)
 
-i dont mind being covered
-
 call me penn or pennywises#1fan. IT/ITS pref they/them is acceptable 
 
 #1/#0/#0.5 pennywise fan/lover/devotee/enthusiast/worshipper
