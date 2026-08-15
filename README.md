@@ -12,12 +12,10 @@ my name is penn use it/it's
 
 #1/#0/#0.5 pennywise fan/lover/devotee/enthusiast/worshipper
 
-<img width="630" height="331" alt="enjoy-pennywises-face-when-he-smashes-the-mirror-maze-glass-v0-d6rgk2goj7s31" src="https://github.com/user-attachments/assets/5cfa5e3b-e717-4355-a379-14b795a46acd" />
-
 pennywise special interest for 9 years  (since 2017)
 
 my only interest is pennywise
 
 pennywise my life my love my everything 
+<img width="2200" height="1240<img width="220" height="124" alt="image3-2" src="https://github.com/user-attachments/assets/30558aa2-b57e-4639-a9c2-98359b8b3118" />
 
-<img width="1920" height="802" alt="stephen-kings-it-pennywises-most-terrifying-moments_5gy3" src="https://github.com/user-attachments/assets/c825955c-17e3-4254-bc80-4d8413a9ff74" />
