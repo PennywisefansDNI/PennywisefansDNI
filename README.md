@@ -19,4 +19,4 @@ my only interest is pennywise
 pennywise my life my love my everything 
 <img width="2200" height="1240" alt="image0-9" src="https://github.com/user-attachments/assets/d0d7d641-aa4e-47a8-adf3-4e6877bfacef" />
 
-< jevil n Cody 3
+< Jevil n Cody 3
