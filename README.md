@@ -17,6 +17,7 @@ pennywise special interest for 9 years  (since 2017)
 my only interest is pennywise
 
 pennywise my life my love my everything 
-<img width="2200" height="1240" alt="image0-9" src="https://github.com/user-attachments/assets/d0d7d641-aa4e-47a8-adf3-4e6877bfacef" />
+<img width="718" height="375" alt="image4-1" src="https://github.com/user-attachments/assets/6d17e9ed-28b4-4c0b-8d59-2201af5de8e8" />
+
 
 < Jevil n Cody 3
