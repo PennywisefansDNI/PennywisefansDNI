@@ -20,4 +20,5 @@ pennywise my life my love my everything
 <img width="718" height="375" alt="image4-1" src="https://github.com/user-attachments/assets/6d17e9ed-28b4-4c0b-8d59-2201af5de8e8" />
 
 
-< Jevil n Cody 3
+< Jevil, Cody, paw, Morty 3
+ffr for life
